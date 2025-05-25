@@ -1,6 +1,6 @@
 # ConvertBox Coupon Code (2025) | Get 50% Lifetime Discount
 
-Looking for a [**ConvertBox coupon**](https://convertbox.com/)?
+Looking for a [**ConvertBox coupon**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)?
 
 In this article, I have listed the latest ConvertBox discount codes, using which you can get a lifetime deal with a 50% discount.
 
