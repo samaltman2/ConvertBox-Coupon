@@ -10,7 +10,7 @@ Let’s get started!
 
 ## ConvertBox Coupon | Get 50% OFF Lifetime Deal
 
-Get [**50% off**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/) and get ConvertBox forever with a one-time **$495 payment**, no monthly fees, with 250,000 monthly views and usage on up to 10 websites.
+Get [**50% off**]([https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/](https://convertbox.com/)) and get ConvertBox forever with a one-time **$495 payment**, no monthly fees, with 250,000 monthly views and usage on up to 10 websites.
 
 Includes the powerful visual drag-and-drop editor.
 
