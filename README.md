@@ -18,7 +18,7 @@ Includes the powerful visual drag-and-drop editor.
 ](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## ConvertBox 14-Day Free Trial Access
 
-Grab a [**14-day free trial**](https://convertbox.com/) with this ConvertBox promo deal, test smart targeting, A/B testing, and personalized opt-ins without spending a dime upfront for 2 weeks.
+Grab a [**14-day free trial**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/) with this ConvertBox promo deal, test smart targeting, A/B testing, and personalized opt-ins without spending a dime upfront for 2 weeks.
 
 [![convertbox free trial](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfGU6JM7gs7cQmh06pDpIFtf2vGgidSbSAtSXl7ANR8B-m5HHvNGY4v42hw0MxCncDONSuHYf1A8HvpdIq8-_ANJ5Z-hZWxct6qVbns_-k7Iz2V43DW_A9d1x6YKTj0LoMAVEAc?key=oflR0HYjeSZ3FVn691MXAA)
 ](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
