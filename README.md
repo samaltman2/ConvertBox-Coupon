@@ -10,55 +10,55 @@ Let’s get started!
 
 ## ConvertBox Coupon | Get 50% OFF Lifetime Deal
 
-Get [**50% off**](https://convertbox.com/) and get ConvertBox forever with a one-time **$495 payment**, no monthly fees, with 250,000 monthly views and usage on up to 10 websites.
+Get [**50% off**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/) and get ConvertBox forever with a one-time **$495 payment**, no monthly fees, with 250,000 monthly views and usage on up to 10 websites.
 
 Includes the powerful visual drag-and-drop editor.
 
-![convertbox coupon](https://lh7-rt.googleusercontent.com/docsz/AD_4nXejkrDz-NQK67b-7vleuBMBToNigJ4sE9rdn2onboGgO62h5XIUtqPcb2eiALOriAFtPydezWYEKYMzGhwtvKQqjScydaowLfPoD4UOH1ol5MXylyF3JynbmlV3rSrIJ8VpFr1i9g?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![convertbox coupon](https://lh7-rt.googleusercontent.com/docsz/AD_4nXejkrDz-NQK67b-7vleuBMBToNigJ4sE9rdn2onboGgO62h5XIUtqPcb2eiALOriAFtPydezWYEKYMzGhwtvKQqjScydaowLfPoD4UOH1ol5MXylyF3JynbmlV3rSrIJ8VpFr1i9g?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## ConvertBox 14-Day Free Trial Access
 
 Grab a [**14-day free trial**](https://convertbox.com/) with this ConvertBox promo deal, test smart targeting, A/B testing, and personalized opt-ins without spending a dime upfront for 2 weeks.
 
-![convertbox free trial](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfGU6JM7gs7cQmh06pDpIFtf2vGgidSbSAtSXl7ANR8B-m5HHvNGY4v42hw0MxCncDONSuHYf1A8HvpdIq8-_ANJ5Z-hZWxct6qVbns_-k7Iz2V43DW_A9d1x6YKTj0LoMAVEAc?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![convertbox free trial](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfGU6JM7gs7cQmh06pDpIFtf2vGgidSbSAtSXl7ANR8B-m5HHvNGY4v42hw0MxCncDONSuHYf1A8HvpdIq8-_ANJ5Z-hZWxct6qVbns_-k7Iz2V43DW_A9d1x6YKTj0LoMAVEAc?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## ConverBox Promo Code - Get Monthly Plan at $99/Month
 
 Claim a monthly plan [**at just $99](https://convertbox.com/)** instead of paying $149/month, ideal for testing ConvertBox's premium features like multi-step funnels and integrations before going all-in.
 
-![ConvertBox promo code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfn3Gi6XjU4iOjQ1Yf5Ou_z5BX6tGzwoc_H7UTtJ8LVt2u53YGcFsOPYD2Ehnq_Pwf5D727qY4RgwB6LUCWlgb2cbfJrxwfj1foPJPC2pBWlXnEbRUgAodUsu3QSAZAhgpimDyG?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![ConvertBox promo code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfn3Gi6XjU4iOjQ1Yf5Ou_z5BX6tGzwoc_H7UTtJ8LVt2u53YGcFsOPYD2Ehnq_Pwf5D727qY4RgwB6LUCWlgb2cbfJrxwfj1foPJPC2pBWlXnEbRUgAodUsu3QSAZAhgpimDyG?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## ConvertBox Pro Upgrade – Only $95 Lifetime Deal
 
 Upgrade to a convertBox Pro account at [**just $95/month**](https://convertbox.com/), with this Coupon code, and unlock all pro features, increase your usage to **50 websites**, and boost your monthly view limit to 500,000, without any recurring fees.
 
-![ConvertBox lifetime deal](https://lh7-rt.googleusercontent.com/docsz/AD_4nXetSbot2KBYHtZo4e3runNiTWKGUKYb09IuTKm4wFS_qeuKF4O7BaB0ibe98E9ElzvPL-ovGdJuaTaPVS79Dt0wRJw7PHTilkOJKMwcN-U-IZzdYZgqVr1Iwct6fnS8r5MwKAuqZA?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![ConvertBox lifetime deal](https://lh7-rt.googleusercontent.com/docsz/AD_4nXetSbot2KBYHtZo4e3runNiTWKGUKYb09IuTKm4wFS_qeuKF4O7BaB0ibe98E9ElzvPL-ovGdJuaTaPVS79Dt0wRJw7PHTilkOJKMwcN-U-IZzdYZgqVr1Iwct6fnS8r5MwKAuqZA?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## How to Apply the ConvertBox Discount Code?
 
 Follow these simple steps to claim a ConvertBox Discount Code.
 
 **Step 1:** Visit the **ConvertBox website** with this special [**discount link**](https://convertbox.com/).
 
-![ConvertBox official website](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcWhOjDRQFqUAdMaugaNqBrEu9NZ4lCNza0yGq2vHC7uMtyugD66RE71zUIRt8mUWXvZj-1kg-T6PhnLwV-NbgxzBWTTpU-xPhDlbrtpnHwpke3SAD-1hxfWU4EITMgrETpmyDj_A?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![ConvertBox official website](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcWhOjDRQFqUAdMaugaNqBrEu9NZ4lCNza0yGq2vHC7uMtyugD66RE71zUIRt8mUWXvZj-1kg-T6PhnLwV-NbgxzBWTTpU-xPhDlbrtpnHwpke3SAD-1hxfWU4EITMgrETpmyDj_A?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 **Step 2:** Scroll down to see the ‘**GET YOUR LIFETIME ACCOUNT**’ button and click on it.
 
-![Get lifetime account](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd64oQSOAzWlnD9AYYmeqUPkidfX6b2B27rkAjK6xmHl65ILsTg0DfmcYEjN8h8AoUL7R-bJdaFIBS2LeaxF7kXC2z9RrWzz35R3OWZKr2fV9N-KY2iVEBGb4u9ivy5_mk1Jwt7?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![Get lifetime account](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd64oQSOAzWlnD9AYYmeqUPkidfX6b2B27rkAjK6xmHl65ILsTg0DfmcYEjN8h8AoUL7R-bJdaFIBS2LeaxF7kXC2z9RrWzz35R3OWZKr2fV9N-KY2iVEBGb4u9ivy5_mk1Jwt7?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 **Step 3:** Enter the necessary details to create your profile on the ConverBox.
 
-![enter necessary](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdAhZhFW9HTFjaOhsuodHOJd8JA94-kcHRwIe15WVEJ1O6XNCtYszws-Y9_0q02HDjoeW8xO-Q9nMOgmc1E86VfQol1VVGKAPiSOYsXPDLSyaBnl6fBzU8OISCHQSX61sW5vgL9xw?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![enter necessary](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdAhZhFW9HTFjaOhsuodHOJd8JA94-kcHRwIe15WVEJ1O6XNCtYszws-Y9_0q02HDjoeW8xO-Q9nMOgmc1E86VfQol1VVGKAPiSOYsXPDLSyaBnl6fBzU8OISCHQSX61sW5vgL9xw?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 **Step 4:** Finally, **enter your payment details** to complete your purchase.
 
-![enter payment details](https://lh7-rt.googleusercontent.com/docsz/AD_4nXckPlEeRggsUrnQCG549_KC4bJiJA_p7PvR_vm9-OGlQlGwJN3qTSillBfhRzlwYsCtjySthexWunwfAvhKdwytxXINN5rIUYjlviXjqfRjBAuXzvQY7Ec-c8SaUJr5AR5X95e2?key=oflR0HYjeSZ3FVn691MXAA)
-
+[![enter payment details](https://lh7-rt.googleusercontent.com/docsz/AD_4nXckPlEeRggsUrnQCG549_KC4bJiJA_p7PvR_vm9-OGlQlGwJN3qTSillBfhRzlwYsCtjySthexWunwfAvhKdwytxXINN5rIUYjlviXjqfRjBAuXzvQY7Ec-c8SaUJr5AR5X95e2?key=oflR0HYjeSZ3FVn691MXAA)
+](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 Congrats! On claiming a ConvertBox promo code.
 
 ## ConvertBox Pricing Plans Overview (Before & After Discount)
 
-**ConvertBox offers two plans with flexible pricing, and the 20% off coupon makes them more affordable.** Below is a comparison of the Standard and Pro plans before and after applying **SAVE20**, based on pricing from [convertbox.com](http://convertbox.com/):
+**ConvertBox offers two plans with flexible pricing, and the 20% off coupon makes them more affordable.** Below is a comparison of the Standard and Pro plans before and after applying **SAVE20**, based on pricing from [convertbox.com](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/):
 
 | **Plan** | **Price** | **Usage Limit** | **Payment Type** |
 | --- | --- | --- | --- |
