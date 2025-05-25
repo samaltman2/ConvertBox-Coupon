@@ -24,13 +24,13 @@ Grab a [**14-day free trial**](https://convertbox.com/) with this ConvertBox pro
 ](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## ConverBox Promo Code - Get Monthly Plan at $99/Month
 
-Claim a monthly plan [**at just $99](https://convertbox.com/)** instead of paying $149/month, ideal for testing ConvertBox's premium features like multi-step funnels and integrations before going all-in.
+Claim a monthly plan [**at just $99**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/) instead of paying $149/month, ideal for testing ConvertBox's premium features like multi-step funnels and integrations before going all-in.
 
 [![ConvertBox promo code](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfn3Gi6XjU4iOjQ1Yf5Ou_z5BX6tGzwoc_H7UTtJ8LVt2u53YGcFsOPYD2Ehnq_Pwf5D727qY4RgwB6LUCWlgb2cbfJrxwfj1foPJPC2pBWlXnEbRUgAodUsu3QSAZAhgpimDyG?key=oflR0HYjeSZ3FVn691MXAA)
 ](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
 ## ConvertBox Pro Upgrade – Only $95 Lifetime Deal
 
-Upgrade to a convertBox Pro account at [**just $95/month**](https://convertbox.com/), with this Coupon code, and unlock all pro features, increase your usage to **50 websites**, and boost your monthly view limit to 500,000, without any recurring fees.
+Upgrade to a convertBox Pro account at [**just $95/month**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime//), with this Coupon code, and unlock all pro features, increase your usage to **50 websites**, and boost your monthly view limit to 500,000, without any recurring fees.
 
 [![ConvertBox lifetime deal](https://lh7-rt.googleusercontent.com/docsz/AD_4nXetSbot2KBYHtZo4e3runNiTWKGUKYb09IuTKm4wFS_qeuKF4O7BaB0ibe98E9ElzvPL-ovGdJuaTaPVS79Dt0wRJw7PHTilkOJKMwcN-U-IZzdYZgqVr1Iwct6fnS8r5MwKAuqZA?key=oflR0HYjeSZ3FVn691MXAA)
 ](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
@@ -38,7 +38,7 @@ Upgrade to a convertBox Pro account at [**just $95/month**](https://convertbox.c
 
 Follow these simple steps to claim a ConvertBox Discount Code.
 
-**Step 1:** Visit the **ConvertBox website** with this special [**discount link**](https://convertbox.com/).
+**Step 1:** Visit the **ConvertBox website** with this special [**discount link**](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/).
 
 [![ConvertBox official website](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcWhOjDRQFqUAdMaugaNqBrEu9NZ4lCNza0yGq2vHC7uMtyugD66RE71zUIRt8mUWXvZj-1kg-T6PhnLwV-NbgxzBWTTpU-xPhDlbrtpnHwpke3SAD-1hxfWU4EITMgrETpmyDj_A?key=oflR0HYjeSZ3FVn691MXAA)
 ](https://bloggervoice--sslcheckout.thrivecart.com/cb-lifetime/)
